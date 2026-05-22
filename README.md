@@ -1,2 +1,2 @@
-# 90's-pixe
+# 90's pixel
 
